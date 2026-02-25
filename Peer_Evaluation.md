@@ -1,4 +1,4 @@
-**Frank Brewery Capstone – Peer Evaluation Form**
+**Capstone – Peer Evaluation Form**
 
 ---
 
