@@ -43,7 +43,6 @@ Consider **all four areas** when assigning points:
 
 ### Submission Instructions
 - Complete the form **independently**; do not discuss scores with teammates.
-- Submit via Blackboard by January 30th.
 - Late submissions may result in default equal distribution of points.
 
 ---
