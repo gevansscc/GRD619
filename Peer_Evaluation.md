@@ -1,4 +1,4 @@
-**Capstone – Peer Evaluation Form**
+**Peer Evaluation Form**
 
 ---
 
